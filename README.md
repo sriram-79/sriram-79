@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sriram-79
-- 👀 I’m interested in ...IT and Government
+- 👀 I’m interested in ...Government and AUTOMOTIVE.
 - 🌱 I’m currently learning ... ADAS(Adavanced driver assistance sysyem)
 - 💞️ I’m looking to collaborate on ... with organizations AUTOMOTIVE
 - 📫 How to reach me ...rambhupal77298@gmail.com
